@@ -1,4 +1,4 @@
-#  
+#  math for brainrots Scripts elite is the best math for brainrots Script, featuring auto-heal and infinite resources. Safe and powerful for all your
 
 
 
